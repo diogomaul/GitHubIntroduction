@@ -9,9 +9,6 @@ _Italico_
 
 **3 tigres:**
 
-![Tiger!](https://upload.wikimedia.org/wikipedia/commons/5/56/Tiger.50.jpg)
-![Tiger!](https://upload.wikimedia.org/wikipedia/commons/5/56/Tiger.50.jpg)
-![Tiger!](https://upload.wikimedia.org/wikipedia/commons/5/56/Tiger.50.jpg)
-
-
-
+![Diogo!](https://miro.medium.com/fit/c/128/128/0*qdmF6gfqy9Us726x.png)
+![Diogo!](https://miro.medium.com/fit/c/128/128/0*qdmF6gfqy9Us726x.png)
+![Diogo!](https://miro.medium.com/fit/c/128/128/0*qdmF6gfqy9Us726x.png)
